@@ -1,1 +1,0 @@
-# Abdul-Qadoos-Malik-Student-Managment-System-
